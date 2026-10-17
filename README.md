@@ -38,3 +38,5 @@ I'm a Python developer with a passion for computer engineering, based in Iran ðŸ
 ## Let's Discuss Computer Engineering!
 
 Whether it's about hardware design, software development, or the latest advancements in computer engineering, I'm always up for a chat. Let's dive deep into the world of technology and engineering!
+ht tps:// cdn.imgurl. ir/uploads/o56930_IMG_20261017_060822.jpg
+htt ps:// cdn.imgurl. ir/uploads/u125844_IMG_20261017_060801.jpg
